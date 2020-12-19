@@ -1,0 +1,1 @@
+# TypEScIpT-sucks
